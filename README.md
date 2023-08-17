@@ -1,1 +1,0 @@
-# ma-minsu.github.io
